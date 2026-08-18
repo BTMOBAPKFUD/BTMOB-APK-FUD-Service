@@ -1,21 +1,7 @@
 # BTMOB-APK-FUD-Service
-BTMOB APK FUD Service
-
-<img width="1661" height="881" alt="bbtttt" src="https://github.com/user-attachments/assets/95c30eb0-d311-4685-a603-541fed45e7ed" />
 
 
-Bypass Accessibility 
-
-
-
-Bypass Play Protect
-
-
-
-
-
-Contact For Service :
-
+<img width="1445" height="849" alt="hhyyy" src="https://github.com/user-attachments/assets/60918f75-9e00-4570-ad06-eddfc3c5d162" />
 
 
 
